@@ -15,7 +15,7 @@ You're mainly supposed to use our site at places that have restrictions.
 - We owe our now.gg app and games to Frogie's Arcade
 
 ## Pete Zah Games Stats
-Our website is host to over 10k users!
+Our website is host to over 50k users!
 
 Links- Your can visit https://petezahgames.com, 
 ## Summary
